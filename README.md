@@ -1,0 +1,2 @@
+# WhatsAppDirect
+WhatsAppDirect Privacy Policy
